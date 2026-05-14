@@ -1,4 +1,4 @@
-#  
+#  hidden Scripts for blade ball offers the most advanced blade ball Script, with instant win and infinite resources. Perfect for dominating any match.
 
 
 
